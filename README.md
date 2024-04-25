@@ -1,1 +1,0 @@
-# Lapordamkarprovgtlo.com
